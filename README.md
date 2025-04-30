@@ -119,3 +119,16 @@ E-STORE-main/
 
 DEPLOYED LINK
 https://fynd-submission.vercel.app/
+
+
+![image](https://github.com/user-attachments/assets/533d8a19-519e-4664-aa98-88c2f7814539)
+
+
+![image](https://github.com/user-attachments/assets/92de00f5-be00-423a-ba21-146fdb7dd192)
+
+![image](https://github.com/user-attachments/assets/39c5bd44-4502-457a-81d9-26b74c592938)
+
+
+
+
+
