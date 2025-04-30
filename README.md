@@ -128,6 +128,9 @@ https://fynd-submission.vercel.app/
 
 ![image](https://github.com/user-attachments/assets/39c5bd44-4502-457a-81d9-26b74c592938)
 
+![image](https://github.com/user-attachments/assets/4c4bfc14-58bf-44cc-86f4-0c817a2a0986)
+
+
 
 
 
